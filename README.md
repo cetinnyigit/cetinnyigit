@@ -8,4 +8,4 @@
 - 📫 How to reach me: [Linkedin](https://www.linkedin.com/in/yigitcetinn/) , [İnstagram](https://www.instagram.com/cetinnyigit/) , [Youtube Channel](https://www.youtube.com/channel/UCHcYouzqXT2wq4FiZjHfmPA?themeRefresh=1) 
 - 😄 Pronouns: He/Him
 
--->
+
