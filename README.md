@@ -1,6 +1,4 @@
-### Hi there 👋
-
-Here are some ideas to get you started:
+### Hello World! 👋
 
 - 👋 Hi, I’m Yiğit Çetin
 - 👀 I’m interested in Technology, Softwares, and Sports
